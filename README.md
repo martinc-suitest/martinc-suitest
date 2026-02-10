@@ -1,1 +1,1 @@
-👋 Hi, I’m @martinc-suitest a project manager in Suitest
+👋 Hi, I’m Martin - CPO @ Suitest
